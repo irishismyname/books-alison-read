@@ -1,6 +1,9 @@
 site_name: Books Alison Read
 theme:
   name: material
+  palette:
+    scheme: default
+    primary: cyan
 markdown_extensions:
   - def_list
   - pymdownx.tasklist:

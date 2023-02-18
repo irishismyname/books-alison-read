@@ -1,7 +1,7 @@
-# alison's books
+# Alison's books
 ## Have Read
-- 
-- [x] That one by Mr. Silly butt
+- Bad Sister
+- That one by Mr. Silly butt
 
 ## Want to Read
 - [ ] How to fart by Doddy

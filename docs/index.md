@@ -1,6 +1,6 @@
-# Books Alison Read
+# alison's books
 ## Have Read
-- [x] This one by Dr. Poopy Butt
+- 
 - [x] That one by Mr. Silly butt
 
 ## Want to Read

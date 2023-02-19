@@ -1,13 +1,137 @@
 # My books
 ## Did Read
-- Bad Sister
-- All the dogman books as of  febuary 2023
--  all the books by terri libenson  as of febuary 2023
-- 
-- 
-- 
-- 
+- Bad Sister by Harper, Charise Mericle
+- All the Dogman books as of  febuary 2023
+-  Emmie & Friends Series by Terri Libenson  as of febuary 2023
+    - Positively Izzy
+    - Invisible Emmie
+    - Just Jaime
+    - Becoming Brianna
+    - Truly Tyler
+    - Remarkably Ruby
+- Swim Team By Christmas, Johnnie
+- Bink & Gollie By DiCamillo, Kate, Author
+- Meg, Jo, Beth, and Amy : a graphic novel By Terciero, Rey, Author.
+- Frizzy By Ortega, Claribel A
+- The first cat in space ate pizza By Barnett, Mac
+- Batter royale By Adams, Leisl
+- Ramp rats : a graphic guide adventure By O'Donnell, Liam
+- Invisible By Gonzalez, Christina Diaz
+- The girl who could fly By Forester, Victoria
+- Twins by Johnson and Shannon Wright
+- Enola Holmes; The Graphic Novels Book One by Serena Blasco
+- The Best Bad Babysitters Ever Books 1-2
+- Banana Fox and the booking-eating robot By Kochalka, James
+- Dance class. By Béka
+    - Snow White and the seven dwarves 
+    - Romeos and Juliet
+    - Dancing in the rain 
+    - Dance with Me
+- Mighty Jack and Zita the spacegirl By Hatke, Ben,
+- Tidesong By Xu, Wendy
+- Kayla Miller Graphic Novels
+    - Click
+    - Camp
+    - Act
+    - Clash
+    - Crunch
+- Breaking the ice By Nall, Gai
+- The Pathfinders Society Series
+    - The Mystery of the Moon Tower
+    - The Curse of the Crystal Cavern
+    - The Legend of the Lost Boy
+- Space Battle Lunchtime by Riess, Natalie
+    - A Recipe for Disaster 
+    - Lights, camera, snacktion! 
+By Riess, Natalie
+- Ramona and Beezus by Beverly Cleary
+- From the Notebooks of a Middle School Princess by Meg Cabot Books 1-4
+- Narwhal and Jellyfish series
+- Hilo. Books 1-5 by Winick, Judd
+- Magic tree House graphic novels By Osborne, Mary Pope
+    - mummies in the morning 
+    - Pirates past Noon
+    - Dinosaurs Before Dark
+- Wings of Fire Graphic Novels Books 1-2
+- Monster friends By Vandorn, Kaeti
+- The great art caper By Jamieson, Victoria
+- The very genius notebooks : The chronicles of Deltovia, By Jaimes, Olivia
+- Surely surely Marisol Rainey By Kelly, Erin Entrada
+- The Cardboard kingdom Series (Books 1-2) By Sell, Chad
+- Ways to grow love By Watson, Renée
+- Salt magic By Larson, Hope
+- Jellaby : monster in the city By Soo, Kean
+- Phoebe and her Unicorn Adventure by Simpson, Dana
+    -  Unicorn Bowling
+    -  Camping with Unicorns
+    -  Virtual Unicorn Experience
+    -  Unicorn on a Roll
+    - Unicorn of many Hats
+    - Unicorn Theater
+    - Unicorn Crossing
+    - Unicorn Playlist
+    - Unicorn Famous
+- Owly by Runton, Andy
+    - Flying Lessons
+    - A Time to be Brave
+   - The Way Home
+- Babymouse series
+- Wingbearer By Liu, Marjorie
+- The secret garden on 81st St: retelling of The secret garden By Weir, Ivy Noelle
+- Allergic By Lloyd, Megan Wagner
+- Pee, Bee and Jay
+    - Liftoff
+    - Finding Gramps
+    - Stuck Together
+- Ariol Books
+- Star scouts By Lawrence, Mike
+- Stargazing By Wang, Jen
+- Turtle in paradise : the graphic novel By Holm, Jennifer L
+- Raina Telgemeier Graphic Novels
+    - Sisters
+    - Guts
+    - Smile
+- Nightlights By Alvarez, Lorena
+- Otto : a palindrama By Agee, Jon
+- Sanity & Tallulah By Brooks, Molly
+- My Bejing : four stories of everyday wonder By Jun, Nie
+- Miss Quinces By Fajardo, Kat
+- Isla to island By Castellanos, Alexis
+- Too pig to fail By Harrell, Rob
+- The Sunny Series By Jennifer Holmes
+    - Sunny Makes a Splash
+    - Sunny Side Up
+    - Swing it, Sunny
+    - Sunny Rolls the Dice
+- Scout is not a band kid By Armstrong, Jade
+- Squish Series by Jennifer Holm
+- Forever home By Ayoub, Jenna
+- Katie the catsitter By Venable, Colleen A. F
+- Measuring up By LaMotte, Lily
+- Haylee and Comet : a tale of cosmic friendship By Marcero, Deborah
+- Jukebox By Giordano, Nick/ Chanani, Nidhi
+- Roller girl By Jamieson, Victoria
+- Cat Kid Comic Club
+- Shirley & Jamila save their summer By Goerz, Gillian
+- The Bad Guys Series
+- Doodleville. 1 By Sell, Chad
+- Pawcasso By Lai, Remy
+- Stuck By Swender, Jennifer
+- The witch's apprentice By Elliott, Zetta
+- CatStronauts by Brockington, Drew 
+    - Robot rescue
+    - Slapdash Science
+- Poached By Gibbs, Stuart
+- Panda-monium By Gibbs, Stuart
+- Disney NeverGirls Series Books #1-13
+- The Owl Diaries
+
+
+
+
 ## Want to read
  - Any graphic novel 
- - sience fiction chapter books
+ - Science fiction chapter books
+ - Surprisingly Sarah by Terri Libenson
+
  

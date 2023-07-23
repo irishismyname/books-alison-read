@@ -47,7 +47,7 @@ By Riess, Natalie
 - Ramona and Beezus by Beverly Cleary
 - From the Notebooks of a Middle School Princess by Meg Cabot Books 1-4
 - Narwhal and Jellyfish series
-- Hilo. Books 1-5 by Winick, Judd
+- Hilo. Books 1-6 by Winick, Judd
 - Magic tree House graphic novels By Osborne, Mary Pope
     - mummies in the morning 
     - Pirates past Noon
@@ -106,7 +106,7 @@ By Riess, Natalie
 - Scout is not a band kid By Armstrong, Jade
 - Squish Series by Jennifer Holm
 - Forever home By Ayoub, Jenna
-- Katie the catsitter By Venable, Colleen A. F
+- Katie the Catsitter By Venable, Colleen A. F
 - Measuring up By LaMotte, Lily
 - Haylee and Comet : a tale of cosmic friendship By Marcero, Deborah
 - Jukebox By Giordano, Nick/ Chanani, Nidhi
@@ -126,6 +126,7 @@ By Riess, Natalie
 - Disney NeverGirls Series Books #1-13
 - The Owl Diaries
 - Parachute Kids by Tang, Betty
+- The Silver Six
 
 
 

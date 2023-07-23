@@ -125,6 +125,7 @@ By Riess, Natalie
 - Panda-monium By Gibbs, Stuart
 - Disney NeverGirls Series Books #1-13
 - The Owl Diaries
+- Parachute Kids by Tang, Betty
 
 
 
